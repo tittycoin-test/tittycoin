@@ -1,3 +1,3 @@
-FooCoin (FOO)
+TittyCoin (TTC)
 
 Blah, blah, blah.
